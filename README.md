@@ -1,2 +1,2 @@
-Check out my amazing hero cover with my friend
-https://drive.google.com/file/d/1DQ3ewUdq0Z34izkURUe4q54_pIg9Pftt/view?usp=drivesdk
+" You can run from your demons until you are exhausted " ———
+If you know @LCB61 and his call out documents about his ex named Scar that is NOT me. 
