@@ -1,3 +1,10 @@
+ ⠀⠀⠀⠀⠀⠀⠀ ‎ ⠀⠀⠀⠀⠀⠀⠀⠀ ‎ ⠀⠀ ⠀ ‎ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=seaofproblems&label=;ଓ&color=dacabe&style=flat-square)
+ 
+ ---
+![](https://files.catbox.moe/f6iciu.png)
 
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/85e3b022-c385-47f1-9429-71ffe151a8d9" />
-           Your coolest friend
+---
+
+⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/588guc.png) ⠀⠀⠀⠀⠀⠀[![](https://files.catbox.moe/x5s850.gif)](https://rentry.co/everlastingsea) [![](https://files.catbox.moe/wyiey4.gif)](https://seaofproblems.atabook.org/)⠀⠀ ‎ ⠀⠀ ![](https://files.catbox.moe/e4e858.png)
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ‎ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ‎ ⠀⠀ ⠀⠀⠀ ‎ ⠀⠀  ‎ ⠀⠀⠀
